@@ -5,4 +5,4 @@ hello everybody
 
 
 it's me smart coder
-and i really don't know what to say 
+and I'm really glad and honored to be learning with you  
